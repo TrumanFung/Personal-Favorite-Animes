@@ -1,8 +1,6 @@
-## Welcome to GitHub Pages
+## Anime Recommendations and Reviews for People
 
-Yu can use the [editor on GitHub](https://github.com/TrumanFung/PersonalFavoriteAnimes/edit/main/README.md) to maintain and preview the content for your website in Markdown files.
-
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+Anime has been becoming more and more popular recently, so some people might feel inclined yet nervous to begin to watch anime. Yet anime has such a large variety to choose from to watch. There are a lot of good and bad. As someone who as subsumed a lot of Japanese animation for the past 4 years, I thought that I should voice out possible recomendations of anime for people that haven't seen any anime. 
 
 ### Markdown
 
