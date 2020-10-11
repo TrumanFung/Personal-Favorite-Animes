@@ -41,7 +41,7 @@ Steins Gate is a solid show that hits every point that it is trying to hit. It i
 
 ### Erased
 
-![image](https://img.paratic.com/dosya/2017/03/en-iyi-animeler-erased-boku-dake-ga-inai-machi.jpg)
+![erasedimage](https://img.paratic.com/dosya/2017/03/en-iyi-animeler-erased-boku-dake-ga-inai-machi.jpg)
 
 - Mystery
 - Psychological
