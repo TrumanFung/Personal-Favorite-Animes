@@ -41,11 +41,15 @@ Steins Gate is a solid show that hits every point that it is trying to hit. It i
 
 ### Erased
 
-![Image](src)
+![image](https://img.paratic.com/dosya/2017/03/en-iyi-animeler-erased-boku-dake-ga-inai-machi.jpg)
 
+- Mystery
+- Psychological
+- Thriller
 
+Since Erased is a story centered anime, I will not be giving a summary. The best way to experience this anime is to go in knowing absolutly nothing about the anime. This shory 12 episode anime tells an intense psychological thriller that gets in heavily invested in the main character and the people he interacts with. Due to its short length of 12 episodes, 
 
-There are plenty of other animes out there for other people to watch. If you want to watch to look for other people's opinion [Link](url) is a great way to see what people like. Because the average person can make an account, the rating aren't the most objective. People often put really extreme answers that don't make sense for the 1-10 rating system. MyAnimelist is not a good reference to see what is objectivly good and well written, but it is a good way to watch know what is popular. What is popular doesn't mean that it isn't objectivly great, but you can get an idea of what is easier for people to watch. 
+There are plenty of other animes out there for other people to watch. If you want to watch to look for other people's opinion [MyAnimeList](https://myanimelist.net/) is a great way to see what people like. Because the average person can make an account, the rating aren't the most objective. People often put really extreme answers that don't make sense for the 1-10 rating system. MyAnimeList is not a good reference to see what is objectivly good and well written, but it is a good way to watch know what is popular. What is popular doesn't mean that it isn't objectivly great, but you can get an idea of what is easier for people to watch. 
 
 Ultimately it all begins with the start. Once you start to watch anime, it begins a lot easier to consume more and more anime. Once you find something that you like it becomes even easier. You just need to start.
 
