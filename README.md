@@ -6,7 +6,7 @@ Anime has been becoming more and more popular recently, so some people might fee
 
 ### One-Punch Man
 
-![Image](src)
+![onepunchman](https://upload.wikimedia.org/wikipedia/it/9/93/One-Punch_Man.jpg)
 
 - action
 - sci-fi
@@ -35,7 +35,7 @@ good
 ![Image](src)
 
 - Thriller
-- Sci-fi
+- Sci-f
 
 Steins Gate is a solid show that hits every point that it is trying to hit. It is an intense sci-fi thriller, with solid characters that build to a great romance.
 
