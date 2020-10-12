@@ -10,9 +10,9 @@ Anime has been becoming more and more popular recently, so some people might fee
 
 - **action**
 - **sci-fi**
-- **comedy**
+- **comedy** 
 
-If you are someone looking for a show with really solid action then One-Punch Man is a solid start for watching Anime. One Punch Man is filled with non stop actions filled with amazing animation. The movement of the characters are really fluid in the fight scences, and the visual effects are also really fluid. About every other episode has action that lives up to the hype and the pacing never slows down. Especially the last fight of season 1 will leave a long lasting impression on every other fight scene afterwards. 
+Essentially, One Punch Man is about how Saitama is too strong compared to everyone and spends his days as a hero for the fun of it. If you are someone looking for a show with really solid action then One-Punch Man is a solid start for watching Anime. One Punch Man is filled with non stop actions filled with amazing animation. The movement of the characters are really fluid in the fight scences, and the visual effects are also really fluid. About every other episode has action that lives up to the hype and the pacing never slows down. Especially the last fight of season 1 will leave a long lasting impression on every other fight scene afterwards. 
 
 The anime also has solid comedy throughout the show. The comedy that comes from One-Punch Man won't be the greatest comedy that you will find in anime, but it is enough to give a few laughs throughout the show.
 
@@ -39,7 +39,7 @@ The biggest flaw about this anime is the art-style. This characters looks nothin
 ![SteinsGateImage](https://live.staticflickr.com/5756/20710679992_26ebf78215_b.jpg)
 
 - **Thriller**
-- **Sci-f**
+- **Sci-fi**
 
 Steins Gate is a solid show that hits every point that it is trying to hit. It is an intense sci-fi thriller, with solid writing that gives each character unique traits and interactions with other characters. Without spoiling too much, the show follows Okabe on a time traveling journey to fix a major issue that he can't seem to overcome. 
 
@@ -62,6 +62,22 @@ Since Erased is a story centered anime, I will not be giving a summary. The best
 Another great thing about this anime is how it touches upon people's psyche. One of the characters has an incredibly complelling backstory which makes you more invested in the resolution of the story. The anime addresses some topics that could be considered disturbing, but the topics add a greater gravitos to the stories progression. All the aspects that the anime try to convey are properly convey in a excellent way. The main character's emotions are also felt by the viewer because what he does feels realistic. The way all the character's interact and the backstory behind them get you heavily invested for every continuing episode.
 
 I wish that I could talk more about what makes the anime so enjoyable, but that might away too much in the story. The whole greatness predicated behind this anime is the fact that it is a Mystery. The fact that you are unsure about everything is what makes this anime so good. Simply watch the show and you will understand what sets it apart from other anime.
+
+## Films
+
+### Your Name
+
+![YourNameImage](https://live.staticflickr.com/5454/30848403330_09b0b9d426_b.jpg)
+
+- **Romance**
+- **Supernatural**
+- **Drama**
+
+This film is one of the best animes to start with in general. I will not get into the summary of the film because it is a film. Due to it being a lot shorter than a show, a summary would reveal too much about the movie. The romance, the scenery, and the drama are all done so well. The studio comix wave really made this anime film look breath taking. The way the lighting is done on the environment and the way everything is so vibrant and colorful accentuates the entire feel of the movie. The look of the movie is just a joy in itself to behold. When I watched it I could never take my eyes off of the screen. There is so much detail in every shot the movie has to offer.
+
+Now the actual story itself is such joy to follow. The romance is the entire plot of the show and the drama is the conflict of the show. The way the characters interact despite their circumstances leads to an incredibly well developed romance. The development of the charcters and the slow build up of romance is what makes the romance so great. There characters don't instantly fall in love, but must interact with each other for the slow build up of chemistry between them. Throughout the film, you are rooting for the male and female protagonists to have their happy ending together.
+
+Another thing that makes the film so entertaining is the soundtrack. Everytime the insert songs are put into the scene, it adds onto the ambience of the scene. The soundtrack isn't just there to have a catchy song that people remember when they walk out of the theatres so they can sing it with their friends. Every bit of the soundtrack creates the mood of what is meant to be felt during a certain scenes and it works. The mood that is felt during those scenes are apropos for the situation.
 
 ## What to Take Away
 
