@@ -1,6 +1,6 @@
 # Anime Recommendations and Reviews for People
 
-Anime has been becoming more and more popular recently, so some people might feel inclined yet nervous to begin to watch anime. Yet anime has such a large variety to choose from to watch. There are a lot of good and bad. As someone who as subsumed a lot of Japanese animation for the past 4 years, I thought that I should voice out possible recomendations of anime for people that haven't seen any anime. 
+Anime has been becoming more and more popular recently, so some people might feel inclined yet nervous to begin to watch anime. Anime has such a large variety to choose from to watch. There are a lot of good and bad. As someone who as subsumed a lot of Japanese animation for the past 4 years, I thought that I should voice out possible recomendations of anime for people that haven't seen any anime. 
 
 ## Action
 
@@ -63,7 +63,7 @@ Another great thing about this anime is how it touches upon people's psyche. One
 
 I wish that I could talk more about what makes the anime so enjoyable, but that might away too much in the story. The whole greatness predicated behind this anime is the fact that it is a Mystery. The fact that you are unsure about everything is what makes this anime so good. Simply watch the show and you will understand what sets it apart from other anime.
 
-## Films
+## Romance
 
 ### Your Name
 
