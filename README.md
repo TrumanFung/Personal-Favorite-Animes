@@ -6,7 +6,7 @@ Anime has been becoming more and more popular recently, so some people might fee
 
 ### One-Punch Man
 
-![onepunchman](https://m.media-amazon.com/images/M/MV5BMTNmZDE2NDEtNTg3MS00OTE1LThlZGUtOGZkZTg0NTUyNGVmXkEyXkFqcGdeQXVyNTgyNTA4MjM@._V1_UY1200_CR85,0,630,1200_AL_.jpg)
+![onepunchman](https://www.slashfilm.com/wp/wp-content/images/one-punch-man.jpg)
 
 - **action**
 - **sci-fi**
@@ -79,9 +79,19 @@ Now the actual story itself is such joy to follow. The romance is the entire plo
 
 Another thing that makes the film so entertaining is the soundtrack. Everytime the insert songs are put into the scene, it adds onto the ambience of the scene. The soundtrack isn't just there to have a catchy song that people remember when they walk out of the theatres so they can sing it with their friends. Every bit of the soundtrack creates the mood of what is meant to be felt during a certain scenes and it works. The mood that is felt during those scenes are apropos for the situation.
 
-### Rascal Does Not Dream Of A Dreaming Girl
+### Kaguya-Sama: Love is War
 
+![LoveIsWar](https://www.ntdaily.com/wp-uploads/2020/07/kaguya-sama-a-1-pictures-1024x576.jpg)
 
+- **Romance**
+- **Comedy**
+- **Slice of Life**
+
+This is where it becomes a little bit more of an anime then the other recommendations. This recommendation wouldn't be as appreciated if one wasn't deeply invested into anime, but it still is a really good anime. It is a very episodic skit based anime that mainly involve a lot of humor. The main premise is that the female protagonist, Kaguya, and the male protagonist, Shirogane, are trying to get the other to confess to the other because they are to embarressed to confess their love for each other. The comedy is centered around their plans to achieve this and their reaction to the other's plan. The comedy is always fast paced and over the top, which will leave you with constant laughter. 
+
+As silly as the romance may sound, the romance is still every much there. You are constantly rooting for them to get closer and closer to revealing their feelings for one another. Their character interactions are full of humor yet still full of high-school romance. Escpecially with the wide variey of characters, you can simply appreciate the interactions that the two main leads have with the other characters. Every character has depth and a variety of emotions. While not all the emotions seen are realistic, the variety that is seen in the characters makes it feel very realistic. That realism gets you invested in the romance and the characters themselves.
+
+None of the episodes ever drop-off in humor or romance. If you are looking for romance, than you will we pleased. If you are looking for comedy, than you will leave with tears of laughter. It really is one of the most enjoyable animes I have ever sat through.
 
 ## What to Take Away
 
