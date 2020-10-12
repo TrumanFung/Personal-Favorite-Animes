@@ -6,7 +6,7 @@ Anime has been becoming more and more popular recently, so some people might fee
 
 ### One-Punch Man
 
-![onepunchman](https://upload.wikimedia.org/wikipedia/it/9/93/One-Punch_Man.jpg)
+![onepunchman](https://dw9to29mmj727.cloudfront.net/promo/2016/5256-SeriesHeaders_OPM_2000x800.jpg)
 
 - **action**
 - **sci-fi**
@@ -20,7 +20,7 @@ Though season 1 lives up to the greatness and hype around One-Punch Man, season 
 
 ### Mob Psycho 100
 
-![MobPsychoImage](https://upload.wikimedia.org/wikipedia/it/1/1c/Mob_Psycho_100.jpg)
+![MobPsychoImage](https://m.media-amazon.com/images/M/MV5BZmE1NjIyNjYtMTVmMy00M2YyLTljMjMtZGQwYmUxOTU4NjRlXkEyXkFqcGdeQXVyNjc3OTE4Nzk@._V1_.jpg)
 
 - **Action**
 - **Comedy**
@@ -36,7 +36,7 @@ The biggest flaw about this anime is the art-style. This characters looks nothin
 
 ### Steins;Gate
 
-![SteinsGateImage](https://live.staticflickr.com/5756/20710679992_26ebf78215_b.jpg)
+![SteinsGateImage](https://miro.medium.com/max/960/1*gnXIaTP_E-PXr1EbaMudyQ.jpeg)
 
 - **Thriller**
 - **Sci-fi**
@@ -78,6 +78,10 @@ This film is one of the best animes to start with in general. I will not get int
 Now the actual story itself is such joy to follow. The romance is the entire plot of the show and the drama is the conflict of the show. The way the characters interact despite their circumstances leads to an incredibly well developed romance. The development of the charcters and the slow build up of romance is what makes the romance so great. There characters don't instantly fall in love, but must interact with each other for the slow build up of chemistry between them. Throughout the film, you are rooting for the male and female protagonists to have their happy ending together.
 
 Another thing that makes the film so entertaining is the soundtrack. Everytime the insert songs are put into the scene, it adds onto the ambience of the scene. The soundtrack isn't just there to have a catchy song that people remember when they walk out of the theatres so they can sing it with their friends. Every bit of the soundtrack creates the mood of what is meant to be felt during a certain scenes and it works. The mood that is felt during those scenes are apropos for the situation.
+
+### Rascal Does Not Dream Of A Dreaming Girl
+
+
 
 ## What to Take Away
 
