@@ -59,9 +59,9 @@ The biggest problem with the show is the pacing. The first half of the show has 
 
 Since Erased is a story centered anime, I will not be giving a summary. The best way to experience this anime is to go in knowing absolutly nothing about the anime. This shory 12 episode anime tells an intense psychological thriller that gets in heavily invested in the main character and the people he interacts with. Due to its short length of 12 episodes, its pacing is phenomenal. Every episode has a cliffhanger that adds unto the mystery of the story. You constantly wonder about the overarching mystery and how the main character will solve it.
 
-Another great thing about this anime is how it touches upon people's psyche. One of the characters has an incredibly complelling backstory which makes you more invested in the resolution of the story. The anime addresses some topics that could be considered disturbing, but the topics add a greater gravitos to the stories progression. All the aspects that the anime try to convey are properly convey in a excellent way.
+Another great thing about this anime is how it touches upon people's psyche. One of the characters has an incredibly complelling backstory which makes you more invested in the resolution of the story. The anime addresses some topics that could be considered disturbing, but the topics add a greater gravitos to the stories progression. All the aspects that the anime try to convey are properly convey in a excellent way. The main character's emotions are also felt by the viewer because what he does feels realistic. The way all the character's interact and the backstory behind them get you heavily invested for every continuing episode.
 
-I wish that I could talk more about what makes the anime so good, but that might away too much in the story. The whole greatness predicated behind this anime is the fact that it is a Mystery. The fact that you are unsure about everything is what makes this anime so good.
+I wish that I could talk more about what makes the anime so enjoyable, but that might away too much in the story. The whole greatness predicated behind this anime is the fact that it is a Mystery. The fact that you are unsure about everything is what makes this anime so good. Simply watch the show and you will understand what sets it apart from other anime.
 
 ## What to Take Away
 
