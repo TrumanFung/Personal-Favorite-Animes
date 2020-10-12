@@ -6,7 +6,7 @@ Anime has been becoming more and more popular recently, so some people might fee
 
 ### One-Punch Man
 
-![onepunchman](https://dw9to29mmj727.cloudfront.net/promo/2016/5256-SeriesHeaders_OPM_2000x800.jpg)
+![onepunchman](https://m.media-amazon.com/images/M/MV5BMTNmZDE2NDEtNTg3MS00OTE1LThlZGUtOGZkZTg0NTUyNGVmXkEyXkFqcGdeQXVyNTgyNTA4MjM@._V1_UY1200_CR85,0,630,1200_AL_.jpg)
 
 - **action**
 - **sci-fi**
